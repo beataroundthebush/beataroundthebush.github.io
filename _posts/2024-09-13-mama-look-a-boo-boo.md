@@ -1,4 +1,4 @@
-## Sept 13: Mama Look a Boo Boo
+## Mama Look a Boo Boo
 
 _**Mama Look A Boo Boo** - Harry Belafonte_ 
 
