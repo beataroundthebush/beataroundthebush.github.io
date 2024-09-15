@@ -1,4 +1,4 @@
-## Sept 06 - Songs About Me
+## Songs About Me
 
 This week seems to be Josh Turner heavy! But I've always loved his deep voice from the first moment I heard it - incidentally it was **_The Long Black Train_**
 
